@@ -1,4 +1,4 @@
-*Derugin Grigory initstudentitin@gmail.com
+Derugin Grigory initstudentitin@gmail.com
 
 [Some words about me](https://youtu.be/pn2mejtO05o)
 
